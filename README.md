@@ -50,3 +50,4 @@ Se o criterio principal é “quedar de pé por si mesma e abrirse andando”, a
 As mochilas tipo roll-top poden quedar de pé, pero non son tan cómodas para abrir mentres camiñas. Se queres ese uso dinámico, é preferible buscar modelos con apertura frontal ou tipo “maleta”.
 
 modificacion
+2
